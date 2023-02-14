@@ -1,1 +1,0 @@
-# ekeivas-story
